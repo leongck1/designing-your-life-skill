@@ -38,9 +38,6 @@ Praised by David Kelley (founder of IDEO), Daniel Pink (*Drive*), NPR's Brian Le
 |----------|------|
 | Publisher (Penguin Random House) | https://www.penguinrandomhouse.com/books/249885/designing-your-life-by-bill-burnett-and-dave-evans/ |
 | Amazon (US) | https://www.amazon.com/Designing-Your-Life-Well-Lived-Joyful/dp/1101875321 |
-| Amazon (UK) | https://www.amazon.co.uk/Designing-Your-Life-Well-Lived-Joyful/dp/1784701173 |
-| Barnes & Noble | https://www.barnesandnoble.com/w/designing-your-life-bill-burnett/1122796653 |
-| Audiobook / Kindle | Search "Designing Your Life Burnett Evans" on Audible, Kindle, or your library's app |
 
 *(Prefer to support local bookshops? The book is widely stocked — or order it through Bookshop.org or your nearest independent.)*
 
